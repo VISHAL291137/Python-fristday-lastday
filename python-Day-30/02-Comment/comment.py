@@ -1,1 +1,0 @@
-primt 9vishal '
